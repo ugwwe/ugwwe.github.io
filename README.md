@@ -1,1 +1,1 @@
-# ugwwe.github.io
+# ugwwe.io
